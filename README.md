@@ -1,3 +1,3 @@
 ## Happiest Birthday!!!
 
-# [✨Sanju✨](https://yourdaddybabes.github.io/birthday1/)
+# [✨Sanju✨](https://Oxyy69.github.io/BirthdaySanju2/)
